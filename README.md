@@ -3,7 +3,10 @@
 - 🌱 I’m currently learning about Civil Engineering, engaging
 - 📫 How to reach me:[gldjymjn23@gmail.com]
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:
+- Gaming when I'm not working 🎮
+- Spending my spare time with my fur babies and my love one 😸🐶❤️
+- Sporty 🏋🏻‍♀️
 
 <!---
 gjmajan/gjmajan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
